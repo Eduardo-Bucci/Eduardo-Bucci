@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Eduardo Bucci 😁
+## Bem-vindo(a) ao perfil do Eduardo Bucci 😉
 
  <div>
    <a href="https://github.com/Eduardo-Bucci">
